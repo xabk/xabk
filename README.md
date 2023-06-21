@@ -1,4 +1,4 @@
-Hey, I'm Alex, Head of Localization at Coffee Stain Publishing
+Hey, I'm Alex, Localization Lead at Coffee Stain Publishing
 
 I've got over 15 years of experience in the industry: as a video games translator, 
 localization PM, lead PM, and even sales manager. Now I'm taking care of localization
